@@ -10,4 +10,4 @@ I work remotely  and like to travel a lot.
 
 ### Languages and tools I work with:
 
-<code><img src="https://thumbnail.imgbin.com/13/1/18/python-logo-python-programming-logo-in-black-and-white-zbhv4amq_t.png"></code>
+<code><img src="f3e2"></code>
