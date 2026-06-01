@@ -21,4 +21,4 @@ I work remotely  and like to travel a lot.
 
 -📩&nbsp; How to reach me: [@nurekevs](https://www.instagram.com/nurekevs/)
 
-<br />
+
