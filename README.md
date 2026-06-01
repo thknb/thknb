@@ -15,8 +15,10 @@ I work remotely  and like to travel a lot.
 
 <br />
 
--📍&nbsp; Current location: Almaty, Kazakhstan
--📝&nbsp; Ask me about anythin, I am happy to help
+-📍&nbsp; Current location: Almaty, Kazakhstan.
+
+-📝&nbsp; Ask me about anythin, I am happy to help.
+
 -📩&nbsp; How to reach me: [@nurekevs](https://www.instagram.com/nurekevs/)
 
 <br />
