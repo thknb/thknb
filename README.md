@@ -10,4 +10,4 @@ I work remotely  and like to travel a lot.
 
 ### Languages and tools I work with:
 
-<code><img src="f3e2"></code>
+<code><img src="https://img.icons8.com/?size=100&id=12592&format=png&color=000000"></code>
